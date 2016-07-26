@@ -1,7 +1,6 @@
 hogehogefugaga
 
-hogehogefugaga
-
 
 aaaa
 
+fugafuga
